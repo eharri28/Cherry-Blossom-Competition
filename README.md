@@ -1,1 +1,1 @@
-# Cherry-Blossom-Competition
+# Cherry Blossom Competition
